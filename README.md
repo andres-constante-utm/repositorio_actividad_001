@@ -11,6 +11,4 @@ Francisco Reyes
 RONNIE GUILLERMO TIRIRA MORALES
 
 
-Prueba de texto
-
-Nuevo Teexto
+Alexandra Silva 
